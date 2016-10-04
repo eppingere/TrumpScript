@@ -89,9 +89,11 @@ But most importantly, Trump doesn't like to talk about his failures. So a lot of
 ## Because We Pretend We're Good People
 If this page entertained you, consider making a donation to your favorite charity or political campaign.
 
-I'm a fan of the [Electronic Frontier Foundation](https://www.eff.org), [donate here](https://supporters.eff.org/donate/button)
+I'm a fan of the [Electronic Frontier Foundation](https://www.eff.org), [donate here](https://supporters.eff.org/donate/button) as well as the children in [Aleppo](https://www.supportrefugees.org.uk/) unlike [@GovGaryJohnson](https://twitter.com/GovGaryJohnson)
 
-There's also [Hillary Clinton](https://www.hillaryclinton.com/contribute/donate/), and of course [Donald Trump himself. ](http://www.reactiongifs.com/r/saywha.gif)
+There's also [Hillary Clinton](https://www.hillaryclinton.com/contribute/donate/) and of course [Donald Trump himself. ](http://www.reactiongifs.com/r/saywha.gif) and [Gary Johnson](https://i.kinja-img.com/gawker-media/image/upload/s--D893AHjp--/c_fill,fl_progressive,g_north,h_264,q_80,w_470/fa788gnxcnxrjigqsweq.png)!?
+
+
 
 ## Because We've Sold Out
 If you're feeling extra generous, you can also buy us a beer (or two) for more brainstorming because our small loan of a million dollars wasn't enough:
